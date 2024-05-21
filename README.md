@@ -1,7 +1,20 @@
-### ola boa tarde 🥇
-- meu nome e lucas
-- estudo na [alura](https//www.Alura.com.br)
-- atuamente estou fazendo academia
-- estou no meu ultimo ano na escola
-- sei de 
-  ![](https://media.tenor.com/tUtAdqwkStMAAAAM/%D1%81%D0%BF%D0%BE%D0%BA%D0%BE%D0%B9%D0%BD%D0%BE%D0%B9-%D0%BD%D0%BE%D1%87%D0%B8.gif)
+### Lucas Costa De Lima
+- Email: limalucaas.c@gmail.com                                                       IDADE17
+- Cidade Suzano -sp
+- Telefone:(11) 99875-0190 / (11) 95912-7525
+
+ ### Objetivo:
+- Primeiro emprego;
+- jovem;
+
+ ### Formação acadêmica:
+ - Ensino Médio - E.E Roberto Bianchi - Cursando
+
+  ### Especializações:
+  - Word Básico - Fundação Bradesco;
+  - Excel Básico - Fundação Bradesco;
+
+    ### Infromações adicionais
+    - Estou em busca de oportunidades para o meu primeiro emprego, onde possa obter conhecimentos e experiências. tenho facilidade de aprendizado e estou disposto a colaborar de forma responsável e com muita dedicação para o bem da empresa.
+      
+
